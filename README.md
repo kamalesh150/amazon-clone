@@ -14,6 +14,7 @@ This project helped strengthen my front-end web development skills and attention
 If you have any questions, you can reach me at:
 
 Email: gkamalesh2397@gmail.com
-Instagram: @kamalesh_2397
+[Instagram] https://www.instagram.com/kamalesh_2397/
+
 
 Enjoy! 🚀
